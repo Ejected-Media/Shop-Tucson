@@ -9,3 +9,8 @@
 
 ### Linktree
 https://linktr.ee/shop.tucson
+
+### Facebook Page
+https://www.facebook.com/shop.tucson.page 
+
+
